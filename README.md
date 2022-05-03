@@ -1,2 +1,2 @@
 # Pokemon-nuevo
-Kimbrely tu patrona
+Kimberly tu patrona
